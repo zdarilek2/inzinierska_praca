@@ -1,1 +1,0 @@
-# inzinierska_praca
